@@ -2,7 +2,7 @@
 - 👀 I’m interested in;tech
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on cybre security,codding
-- 📫 How to reach me:kennekalel8@gmai.com
+- 📫 How to reach me:kennedykalel8@gmai.com
 - 😄 Pronouns:he
 - ⚡ Fun fact:darkest a so beautifull you might think am blufing
 
